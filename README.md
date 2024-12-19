@@ -1,7 +1,8 @@
 hi i love my gf
 
 
-![image](https://github.com/user-attachments/assets/fcd47856-946c-41e1-8209-d49bfe56a5d4)
+![image](https://github.com/user-attachments/assets/4f845141-7fde-4153-b839-f6faddd89ca0)
 
 
-that one sunday sitting on that pillow
+
+
